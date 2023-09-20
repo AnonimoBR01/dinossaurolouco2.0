@@ -1,1 +1,1 @@
-# dinossaurolouco2.0
+# dinossauro-louco
